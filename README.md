@@ -1,0 +1,1 @@
+# ekstraksi_citra_daun_sirih_1918081
