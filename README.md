@@ -1,1 +1,2 @@
-# ekstraksi_citra_daun_sirih_1918081
+# 1918081_Daniel Putera Alamsyah
+Tugas Ekstraksi Citra 
